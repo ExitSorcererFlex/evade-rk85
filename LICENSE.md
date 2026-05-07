@@ -1,4 +1,4 @@
-
+evade Scripts exclusive is the best evade Script, featuring anti-ban and auto-farm. Safe and powerful for all your needs.
 
 
 
